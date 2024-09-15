@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @lornanowak
+- 👀 I’m interested in getting started on a Cybersecurity career path! 
+- 🌱 I have graduate with an Associates degree and am close to finishing my Bachelors in Cybersecurity.
+- 📫 How to reach me: lornanowak@gmail.com
